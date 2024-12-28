@@ -1,0 +1,7 @@
+
+### §7a. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§7a. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, act Mar. 18, 1950, ch. 72, §1, 64 Stat. 27; Pub. L. 85–726, title XIV, §1402(e), Aug. 23, 1958, 72 Stat. 807; Pub. L. 91–258, title I, §52(b)(1), May 21, 1970, 84 Stat. 235, related to airports in national parks, monuments and recreation areas; construction, etc. See section 101501(b) of Title 54, National Park Service and Related Programs.
+

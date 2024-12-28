@@ -1,0 +1,7 @@
+
+### §17c. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§17c. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, act May 26, 1930, ch. 324, §4, 46 Stat. 382, related to procurement of supplies, materials, and special services to aid permittees and licensees in emergencies; authority of Secretary of the Interior. See section 102712(b) of Title 54, National Park Service and Related Programs.
+

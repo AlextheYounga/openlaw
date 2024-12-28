@@ -1,0 +1,7 @@
+
+### §1a–5. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§1a–5. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 91–383, §8, as added Pub. L. 94–458, §2, Oct. 7, 1976, 90 Stat. 1940; amended Pub. L. 95–625, title VI, §604(1), Nov. 10, 1978, 92 Stat. 3518; Pub. L. 96–199, title I, §104, Mar. 5, 1980, 94 Stat. 68; Pub. L. 96–344, §8, Sept. 8, 1980, 94 Stat. 1135; Pub. L. 103–437, §6(b), Nov. 2, 1994, 108 Stat. 4583; Pub. L. 104–333, div. I, title VIII, §814(d)(1)(I), Nov. 12, 1996, 110 Stat. 4196; Pub. L. 105–391, title III, §303, Nov. 13, 1998, 112 Stat. 3501, related to additional areas for National Park System. See section 100507 of Title 54, National Park Service and Related Programs.
+

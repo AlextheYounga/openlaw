@@ -1,0 +1,182 @@
+
+### §670*o*. Authorization of appropriations ###
+
+§670*o*. Authorization of appropriations
+
+#### (a) Functions and responsibilities of Secretary of the Interior ####
+
+There are authorized to be appropriated $4,000,000 for each of fiscal years 1998 through 2003, to enable the Secretary of the Interior to carry out his functions and responsibilities under this subchapter, including data collection, research, planning, and conservation and rehabilitation programs on public lands. Such funds shall be in addition to those authorized for wildlife, range, soil, and water management pursuant to section 1748 of title 43, or other provisions of law.
+
+#### (b) Functions and responsibilities of Secretary of Agriculture ####
+
+There are authorized to be appropriated $5,000,000 for each of fiscal years 1998 through 2003, to enable the Secretary of Agriculture to carry out his functions and responsibilities under this subchapter. Such funds shall be in addition to those provided under other provisions of law. In requesting funds under this subsection the Secretary shall take into account fish and wildlife program needs, including those for projects, identified in the State comprehensive plans as contained in the program developed pursuant to the Forest and Rangeland Renewable Resources Planning Act of 1974, as amended (16 U.S.C. 1601–1610).
+
+#### (c) Use of other conservation or rehabilitation authorities ####
+
+The Secretary of the Interior and the Secretary of Agriculture may each use any authority available to him under other laws relating to fish, wildlife, or plant conservation or rehabilitation for purposes of carrying out the provisions of this subchapter.
+
+#### (d) Contract authority ####
+
+The Secretary of the Interior and the Secretary of Agriculture may each make purchases and contracts for property and services from, or provide assistance to, the State agencies concerned, if such property, services or assistance is required to implement those projects and programs carried out on, or of benefit to, Federal lands and identified in the comprehensive plans or cooperative agreements developed under section 670h of this title, without regard to division C (except sections 3302, 3307(e), 3501(b), 3509, 3901, 3905, 3906, 4710, and 4711) of subtitle I of title 41. Contract authority provided in this section is effective only to such extent or in such amounts as are provided in appropriation Acts.
+
+(Pub. L. 86–797, title II, §208, formerly §209, as added Pub. L. 93–452, §2, Oct. 18, 1974, 88 Stat. 1374; amended Pub. L. 95–420, §3, Oct. 5, 1978, 92 Stat. 921; Pub. L. 97–396, §5, Dec. 31, 1982, 96 Stat. 2005; Pub. L. 99–561, §1(b), Oct. 27, 1986, 100 Stat. 3149; Pub. L. 100–653, title II, §202(b), Nov. 14, 1988, 102 Stat. 3827; Pub. L. 105–85, div. B, title XXIX, §2914(b), Nov. 18, 1997, 111 Stat. 2023; renumbered §208 and amended Pub. L. 112–81, div. A, title III, §312(b)(14), (d), Dec. 31, 2011, 125 Stat. 1355.)
+
+#### **Editorial Notes** ####
+
+#### References in Text ####
+
+The Forest and Rangeland Renewable Resources Planning Act of 1974, referred to in subsec. (b), is Pub. L. 93–378, Aug. 17, 1974, 88 Stat. 476, which is classified generally to subchapter I (§1600 et seq.) of chapter 36 of this title. For complete classification of this Act to the Code, see Short Title note set out under section 1600 of this title and Tables.
+
+#### Codification ####
+
+In subsec. (d), "division C (except sections 3302, 3307(e), 3501(b), 3509, 3901, 3905, 3906, 4710, and 4711) of subtitle I of title 41" substituted for "title III (other than section 304) of the Federal Property and Administrative Services Act of 1949 (41 U.S.C. 251–260)" on authority of Pub. L. 111–350, §6(c), Jan. 4, 2011, 124 Stat. 3854, which Act enacted Title 41, Public Contracts.
+
+#### Prior Provisions ####
+
+A prior section 208 of Pub. L. 86–797 was classified to section 670n of this title prior to repeal by Pub. L. 112–81, div. A, title III, §312(d), Dec. 31, 2011, 125 Stat. 1355.
+
+#### Amendments ####
+
+**2011**—Pub. L. 112–81, §312(b)(14), inserted section catchline and headings for subsecs. (a) to (d).
+
+**1997**—Subsec. (a). Pub. L. 105–85, §2914(b)(1), substituted "$4,000,000 for each of fiscal years 1998 through 2003," for "the sum of $10,000,000 for each of the fiscal years 1983, 1984, 1985, 1986, 1987, 1988, 1989, 1990, 1991, 1992, and 1993,".
+
+Subsec. (b). Pub. L. 105–85, §2914(b)(2), substituted "$5,000,000 for each of fiscal years 1998 through 2003," for "the sum of $12,000,000 for each of the fiscal years 1983, 1984, 1985, 1986, 1987, 1988, 1989, 1990, 1991, 1992, and 1993,".
+
+**1988**—Subsecs. (a), (b). Pub. L. 100–653 substituted "1988, 1989, 1990, 1991, 1992, and 1993" for "and 1988".
+
+**1986**—Subsecs. (a), (b). Pub. L. 99–561 substituted "1985, 1986, 1987, and 1988" for "and 1985".
+
+**1982**—Subsecs. (a), (b). Pub. L. 97–396, §5(1), substituted "1983, 1984, and 1985," for "ending September 30, 1979, September 30, 1980, and September 30, 1981," wherever appearing.
+
+Subsecs. (c), (d). Pub. L. 97–396, §5(2), added subsecs. (c) and (d).
+
+**1978**—Subsec. (a). Pub. L. 95–420 substituted provisions authorizing appropriation of $10,000,000 for each of fiscal years ending Sept. 30, 1979, 1980, and 1981 to enable the Secretary to carry out his functions, including data collection, research, planning, and conservation and rehabilitation programs, such funds to be in addition to those authorized for wildlife, range, soil and water management pursuant to section 1748 of title 43, for provisions authorizing appropriation of $10,000,000 for fiscal year ending June 30, 1974, and for each of next four fiscal years to enable Department of the Interior to carry out its functions.
+
+Subsec. (b). Pub. L. 95–420 substituted provisions authorizing appropriation of $12,000,000 for fiscal years ending Sept. 30, 1979, 1980, and 1981 to enable Secretary of Agriculture to carry out his functions, such funds to be in addition to those otherwise provided, and provisions relating to fish and wildlife program needs including those identified in State plans developed pursuant to Forest and Rangeland Renewable Resources Planning Act of 1974, for provisions authorizing appropriation of $10,000,000 for fiscal year ending June 30, 1974, and for each of next four fiscal years to enable Department of Agriculture to carry out its functions.
+
+### **CHAPTER 6—GAME AND BIRD PRESERVES; PROTECTION** ###
+
+Sec.
+671.Repealed and Omitted.
+672.Omitted.
+673.Wyoming Elk Reserve.
+673a.Addition to the Wyoming Elk Reserve.
+673b.National Elk Refuge in Wyoming.
+673c.Conservation of elk in Wyoming.
+673d.Restoration and conservation of elk in California.
+673e.Cooperation of Secretaries of the Interior, Agriculture and Defense with State of California.
+673f.Repealed.
+673g.Plan for elk restoration and conservation; coordination of Secretary of the Interior with Federal, State and other officers; integration with State plans.
+674.White Horse Hill National Game Preserve.
+674a.Sullys Hill National Park; transfer of control; change of name to White Horse Hill National Game Preserve; boundaries; use by public; hunting.
+674b.White Horse Hill National Game Preserve; acquisition of additional lands.
+674c.Boundary and division fences for White Horse Hill National Game Preserve; buildings and improvements; supplies; employees.
+674d.Authorization of appropriations.
+675.Norbeck Wildlife Preserve; establishment.
+676.Hunting, trapping, killing, or capturing game on Norbeck Wildlife Preserve unlawful.
+677.Inclosure of Norbeck Wildlife Preserve.
+678.Exchange of lands with State of South Dakota and Norbeck Wildlife Preserve.
+678a.Mining locations in Norbeck Wildlife Preserve; rules and regulations.
+678b.Redefinition of western boundary of Norbeck Wildlife Preserve.
+679.Patents to State of South Dakota of certain lands in Custer State Park; reservation of coal, oil, gas, and other mineral rights.
+680.Game animal and bird refuge in South Dakota; establishment.
+681.Erection of fence by South Dakota for game animal and bird refuge.
+682.Game refuge in Ozark National Forest.
+683.Areas set aside for protection of game and fish; unlawfully taking game or fish.
+684.Game breeding areas in Wichita and Grand Canyon National Forests.
+685.Hunting, trapping, killing, or capturing game in designated breeding areas unlawful.
+686.Operation of local game laws not affected.
+687.Grand Canyon Game Preserve included in park.
+688.Repealed.
+689.Tahquitz National Game Preserve.
+689a.Other uses of land permitted in Tahquitz National Game Preserve.
+689b.Hunting, pursuing, capturing in Tahquitz National Game Preserve unlawful.
+689c.Rules and regulations for administration of the Tahquitz Preserve; predatory animals.
+689d.Acceptance of title to privately owned lands within Tahquitz Preserve.
+690.Bear River Migratory Bird Refuge; establishment; acquisition of lands.
+690a.Maintenance of lands acquired as refuge and breeding place for migratory birds.
+690b.Consent of Utah to acquisition of lands for Bear River Refuge; approval of title to lands acquired.
+690c.Existence of easements, reservations, or exceptions as barring acquisition of lands.
+690d.Injuries to property on Bear River Refuge; disturbance of birds, etc.; violation of regulations for use of refuge.
+690e.Enforcement of laws and regulations; warrants and processes; jurisdiction of courts; forfeiture of property captured, injured, killed or removed.
+690f.Expenditures by Secretary of the Interior for construction, maintenance, etc., of Bear River Refuge; employment of necessary means to execute functions imposed on him.
+690g.Violation of laws and regulations; penalties.
+690h."Person" defined.
+690i.Omitted.
+691.Cheyenne Bottoms Migratory Bird Refuge; location; acquisition of land.
+691a.Establishment of Cheyenne Bottoms Migratory Bird Refuge; purpose.
+691b.Omitted.
+691c.Acquisition of areas for Cheyenne Bottoms Refuge; title; rights-of-way, easements, and reservations.
+691d.Applicability of certain statutes.
+692.Game sanctuaries or refuges in Ocala National Forest; creation.
+692a.Hunting, pursuing, capturing, etc., in Ocala National Forest unlawful.
+693.Game sanctuaries and refuges in Ouachita National Forest.
+693a.Rules and regulations for administration of Ouachita National Forest; violations; penalties.
+693b.Robert S. Kerr Memorial Arboretum and Nature Center in Ouachita National Forest; authority to establish.
+693c.Administration by Secretary of Agriculture of the Robert S. Kerr Center.
+693d.Cooperation with public and private agencies; contributions and gifts for Robert S. Kerr Center.
+694.Fish and game sanctuaries in national forests; establishment by President.
+694a.Hunting, pursuing, capturing, etc., in sanctuaries in national forests unlawful.
+694b.Rules and regulations for administration of sanctuaries in national forests; jurisdiction of States.
+695.Migratory waterfowl and other wildlife refuge in California; participation by State of California.
+695a.Title in United States of California refuge areas; existence of easements, reservations, etc.; affecting acquisition.
+695b.Applicability of certain statutes.
+695c.Availability of funds for construction of dams, buildings, etc., for California refuge.
+695d.Development of water supplies for waterfowl management in California; reauthorization of Central Valley Project.
+695e.Construction, operation, and maintenance of water supply development works.
+695f.Construction, etc., authorized by section 695e as not reimbursable or returnable under reclamation laws.
+695g.Authorization of appropriations.
+695h.Ownership by State of California of works constructed.
+695i.Authorization of Secretary of the Interior to contract for water delivery; nonreimbursable or nonreturnable basis of delivery.
+695j.Conformity of water use with California laws; construction of sections 695d to 695j–1.
+695j–1.Conformity of contracts with Federal law through negotiation of amendments.
+695k.Congressional declaration of policy for preservation of habitat for migratory waterfowl and prevention of depredations on agricultural crops.
+695*l.*Dedication of lands within boundaries of refuges to wildlife conservation; administration of lands for waterfowl management and optimum agricultural use; homestead entry prohibition; inclusion of other public lands; property of the United States.
+695m.Annual percentage payments of net revenues from leases of Klamath project lands on pro rata basis; limitation on payments; priority of use of net revenues.
+695n.Leases of Lower Klamath and Tule Lake National Wildlife Refuge reserved lands; management of other reserved public lands for waterfowl purposes.
+695*o.*Limitation on reduction of areas by diking or other construction.
+695p.Regulation of waters to maintain sump levels.
+695q.Research studies on Clear Lake Refuge; report to Congress.
+695r.Regulations by Secretary.
+696.National Key Deer Refuge; establishment; acquisition of property: exchanges, cash equalization payments; administration.
+696a.Acquisition of title to properties for National Key Deer Refuge; rights-of-way and easements.
+696b.Authorization of appropriations; limitation.
+697, 697a.Omitted.
+698.Big Thicket National Preserve.
+698a.Acquisition of property for Big Thicket Preserve.
+698b.Right of use and occupancy of improved property on Big Thicket Preserve.
+698c.Administration of Big Thicket Preserve.
+698d.Review of Big Thicket Preserve area by Secretary; report to President.
+698e.Authorization of appropriations for Big Thicket Preserve.
+698f.Big Cypress National Preserve; Big Cypress National Preserve Addition.
+698g.Acquisition of lands for Big Cypress Preserve.
+698h.Right of use and occupancy of improved property on Big Cypress Preserve and Addition.
+698i.Administration of Big Cypress Preserve; applicability of other laws; rules and regulations for use of lands and waters; transportation facilities; consultation and cooperation with Secretary of Transportation.
+698j.Hunting, fishing, and trapping in Big Cypress Preserve and Addition authorized in accordance with applicable Federal and State laws; consultation with appropriate State agency prior to implementation of regulations restricting activities; land use and retention rights of Miccosukee and Seminole Indian Tribes.
+698k.Contracts for providing visitor services in Big Cypress Preserve and Addition; right of first refusal to Miccosukee and Seminole Tribes.
+698*l.*Review of Big Cypress Preserve area and Addition area by Secretary; report to President.
+698m.Authorization of appropriations for Big Cypress Preserve and Addition.
+698m–1.Big Cypress National Preserve Addition.
+698m–2.Establishment of recreational access points, roads, etc., in conjunction with creation of Big Cypress National Preserve Addition; cooperation among agencies.
+698m–3.Status of Big Cypress National Preserve and Addition; report to Congress; plan.
+698m–4.Oil and gas exploration, development, and production in Big Cypress National Preserve and Addition.
+698n.Timucuan Ecological and Historic Preserve.
+698*o.*Protection of significant historic assets.
+698p.Integrated administration and interpretation.
+698q.Little River Canyon National Preserve; establishment.
+698r.Administration.
+698s.Acquisition.
+698t.Authorization of appropriations.
+698u.Tallgrass Prairie National Preserve: findings and purposes.
+698u–1.Definitions.
+698u–2.Establishment of Tallgrass Prairie National Preserve.
+698u–3.Administration of National Preserve.
+698u–4.Limited authority to acquire.
+698u–5.Advisory Committee.
+698u–6.Restriction on authority.
+698u–7.Authorization of appropriations.
+698v to 698v–10. Repealed.
+698v–11.Valles Caldera National Preserve, New Mexico.
+698w.Special management requirements for Federal lands recently added to Craters of the Moon National Monument, Idaho.
+

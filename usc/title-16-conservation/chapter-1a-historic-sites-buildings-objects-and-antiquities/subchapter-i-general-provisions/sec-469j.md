@@ -1,0 +1,7 @@
+
+### §469j. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§469j. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 99–83, title XIII, §1303, Aug. 8, 1985, 99 Stat. 280; Pub. L. 105–277, div. A, §101(b) [title VI, §620], Oct. 21, 1998, 112 Stat. 2681–50, 2681–115, established the Commission for the Preservation of America's Heritage Abroad. See sections 312301 to 312305 of Title 54, National Park Service and Related Programs.
+

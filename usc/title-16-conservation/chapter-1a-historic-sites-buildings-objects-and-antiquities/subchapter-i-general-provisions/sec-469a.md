@@ -1,0 +1,7 @@
+
+### §469a. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§469a. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 86–523, §2, formerly §2(a), June 27, 1960, 74 Stat. 220, renumbered and amended Pub. L. 93–291, §1(2), (5), May 24, 1974, 88 Stat. 174, 175, required that notice of dam construction be given to Secretary of the Interior by United States agencies. See section 312505 of Title 54, National Park Service and Related Programs.
+

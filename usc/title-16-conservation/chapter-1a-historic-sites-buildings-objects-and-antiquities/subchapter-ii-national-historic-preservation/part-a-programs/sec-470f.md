@@ -1,0 +1,7 @@
+
+### §470f. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§470f. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 89–665, title I, §106, Oct. 15, 1966, 80 Stat. 917; Pub. L. 94–422, title II, §201(3), Sept. 28, 1976, 90 Stat. 1320, related to effect of Federal undertakings upon property listed in National Register and comment by Advisory Council on Historic Preservation. See section 306108 of Title 54, National Park Service and Related Programs.
+

@@ -1,0 +1,7 @@
+
+### §8b. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§8b. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, act Apr. 9, 1924, ch. 86, §5, as added Jan. 31, 1931, ch. 79, 46 Stat. 1053; amended 1939 Reorg. Plan No. I, §§301, 302, eff. July 1, 1939, 4 F.R. 2727, 53 Stat. 1426; June 29, 1948, ch. 732, §4(a), 62 Stat. 1107; June 30, 1949, ch. 288, title I, §103, 63 Stat. 380; 1949 Reorg. Plan No. 7, §2, eff. Aug. 10, 1949, 14 F.R. 5228, 63 Stat. 1070, related to national-park approach roads and roads and trails within national parks and national monuments; construction, improvement, and maintenance; appropriation. See section 101511(a), (b)(2), (c) of Title 54, National Park Service and Related Programs.
+

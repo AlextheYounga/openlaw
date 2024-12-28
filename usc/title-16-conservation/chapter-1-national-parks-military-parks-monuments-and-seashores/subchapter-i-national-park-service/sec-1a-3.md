@@ -1,0 +1,7 @@
+
+### §1a–3. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§1a–3. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 91–383, §6, as added Pub. L. 94–458, §2, Oct. 7, 1976, 90 Stat. 1939; amended Pub. L. 103–437, §6(a)(1), Nov. 2, 1994, 108 Stat. 4583, related to legislative jurisdiction; relinquishment by Secretary; submittal of proposed agreement to Congressional committees; concurrent legislative jurisdiction. See section 100754 of Title 54, National Park Service and Related Programs.
+

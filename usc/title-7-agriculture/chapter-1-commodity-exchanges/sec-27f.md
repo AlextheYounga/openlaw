@@ -1,0 +1,63 @@
+
+### §27f. Contract enforcement ###
+
+§27f. Contract enforcement
+
+#### (a) Hybrid instruments ####
+
+No hybrid instrument shall be void, voidable, or unenforceable, and no party to a hybrid instrument shall be entitled to rescind, or recover any payment made with respect to, a hybrid instrument under any provision of Federal or State law, based solely on the failure of the hybrid instrument to satisfy the predominance test set forth in section 27c(b) of this title or to comply with the terms or conditions of an exemption or exclusion from any provision of the Commodity Exchange Act [7 U.S.C. 1 et seq.] or any regulation of the Commodity Futures Trading Commission.
+
+#### (b) Preemption ####
+
+Sections 27 to 27f of this title shall supersede and preempt the application of any State or local law that prohibits or regulates gaming or the operation of bucket shops (other than antifraud provisions of general applicability) in the case of a hybrid instrument that is predominantly a banking product.
+
+(Pub. L. 106–554, §1(a)(5) [title IV, §408], Dec. 21, 2000, 114 Stat. 2763, 2763A–461; Pub. L. 111–203, title VII, §725(g)(1)(C), July 21, 2010, 124 Stat. 1694.)
+
+#### **Editorial Notes** ####
+
+#### References in Text ####
+
+The Commodity Exchange Act, referred to in subsec. (a), is act Sept. 21, 1922, ch. 369, 42 Stat. 998, which is classified generally to this chapter. For complete classification of this Act to the Code, see section 1 of this title and Tables.
+
+#### Codification ####
+
+Section was enacted as part of the Legal Certainty for Bank Products Act of 2000, and also as part of the Commodity Futures Modernization Act of 2000, and not as part of the Commodity Exchange Act which comprises this chapter.
+
+#### Amendments ####
+
+**2010**—Subsec. (b). Pub. L. 111–203, §725(g)(1)(C)(ii), (iii), redesignated subsec. (c) as (b) and struck out former subsec. (b). Text of subsec. (b) read as follows: "No covered swap agreement shall be void, voidable, or unenforceable, and no party to a covered swap agreement shall be entitled to rescind, or recover any payment made with respect to, a covered swap agreement under any provision of Federal or State law, based solely on the failure of the covered swap agreement to comply with the terms or conditions of an exemption or exclusion from any provision of the Commodity Exchange Act or any regulation of the Commodity Futures Trading Commission."
+
+Subsec. (c). Pub. L. 111–203, §725(g)(1)(C)(iii), redesignated subsec. (c) as (b).
+
+Pub. L. 111–203, §725(g)(1)(C)(i), substituted "in the case of" for "in the case of—", struck out par. (1) designation before "a hybrid", substituted "product." for "product; or", and struck out par. (2) which read as follows: "a covered swap agreement."
+
+#### **Statutory Notes and Related Subsidiaries** ####
+
+#### Effective Date of 2010 Amendment ####
+
+Amendment by Pub. L. 111–203 effective on the later of 360 days after July 21, 2010, or, to the extent a provision of subtitle A (§§711–754) of title VII of Pub. L. 111–203 requires a rulemaking, not less than 60 days after publication of the final rule or regulation implementing such provision of subtitle A, see section 754 of Pub. L. 111–203, set out as a note under section 1a of this title.
+
+### **CHAPTER 2—COTTON STANDARDS** ###
+
+Sec.
+51.Short title.
+51a.Extension of classification facilities to cotton growers.
+51a–1.Contracts with cooperatives furnishing classers; amount and type of payment.
+51b.Licensing samplers; revocation and suspension of license.
+52.Use of nonofficial standards prohibited; sales by sample excepted.
+53.Licensing classifiers; revocation and suspension of license.
+54.Classification by Department of Agriculture; certification thereof; effect of certificate; regulations for classification.
+55.Fees and charges for cotton classing and related services; criteria; disposition of moneys and samples.
+56.Establishment of cotton standards; furnishing copies of established standards sold.
+57.Disposition of proceeds of sale of cotton and of copies of standards.
+57a.Agreements with cotton associations, etc., in foreign countries to establish cotton standards.
+58.General inspection and sampling of cotton.
+59.Offenses in relation to cotton standards.
+60.Penalties for violations.
+61.General regulations, investigations, tests, etc., by Secretary.
+61a.Annual review meetings with cotton industry representatives; purposes, etc.
+62.Definitions.
+63.Liability of principal for act of agent.
+64.Appropriation for expenses; appointment by Secretary of officers and agents; compensation.
+65.Separability.
+

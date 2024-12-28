@@ -1,0 +1,7 @@
+
+### §1a–6. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§1a–6. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 91–383, §10, as added Pub. L. 94–458, §2, Oct. 7, 1976, 90 Stat. 1941; amended Pub. L. 106–437, §2, Nov. 6, 2000, 114 Stat. 1920; Pub. L. 108–352, §11, Oct. 21, 2004, 118 Stat. 1397, related to law enforcement personnel within National Park System. See section 102701 of Title 54, National Park Service and Related Programs.
+

@@ -1,0 +1,7 @@
+
+### §940d. Repealed. Pub. L. 115–334, title VI, §6601(b), Dec. 20, 2018, 132 Stat. 4776 ###
+
+§940d. Repealed. Pub. L. 115–334, title VI, §6601(b), Dec. 20, 2018, 132 Stat. 4776
+
+Section, May 20, 1936, ch. 432, title III, §314, as added Pub. L. 101–508, title I, §1201, Nov. 5, 1990, 104 Stat. 1388–7; amended Pub. L. 103–129, §2(b)(1), Nov. 1, 1993, 107 Stat. 1362; Pub. L. 103–354, title II, §235(a)(13), Oct. 13, 1994, 108 Stat. 3221, related to limitations on authorization of appropriations.
+

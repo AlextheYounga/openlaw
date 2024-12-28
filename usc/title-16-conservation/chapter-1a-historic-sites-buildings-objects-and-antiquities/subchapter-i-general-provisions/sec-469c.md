@@ -1,0 +1,7 @@
+
+### §469c. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§469c. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 86–523, §7, formerly §4, June 27, 1960, 74 Stat. 221, renumbered and amended Pub. L. 93–291, §1(9), May 24, 1974, 88 Stat. 175; Pub. L. 95–625, title VI, §603, Nov. 10, 1978, 92 Stat. 3518, related to assistance to Secretary by Federal agencies responsible for construction projects. See section 312507 of Title 54, National Park Service and Related Programs.
+

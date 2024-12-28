@@ -1,0 +1,7 @@
+
+### §17j. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§17j. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, act May 26, 1930, ch. 324, §11, 46 Stat. 383; Pub. L. 91–383, §5, Aug. 18, 1970, as added Pub. L. 94–458, §2, Oct. 7, 1976, 90 Stat. 1939, related to traveling expenses of National Park System employees and dependents of deceased employees. See section 101305 of Title 54, National Park Service and Related Programs.
+

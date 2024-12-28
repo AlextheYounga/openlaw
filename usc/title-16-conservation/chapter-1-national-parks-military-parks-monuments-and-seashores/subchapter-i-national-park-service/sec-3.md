@@ -1,0 +1,7 @@
+
+### §3. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§3. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, act Aug. 25, 1916, ch. 408, §3, 39 Stat. 535; June 2, 1920, ch. 218, §5, 41 Stat. 732; Mar. 7, 1928, ch. 137, §1, 45 Stat. 235; Pub. L. 85–434, May 29, 1958, 72 Stat. 152; Pub. L. 105–391, title IV, §415(b)(1), Nov. 13, 1998, 112 Stat. 3515, related to rules and regulations of national parks, reservations, and monuments; timber; leases. See section 1865(a) of Title 18, Crimes and Criminal Procedure, and sections 100751(a), 100752, 100753, and 102101 of Title 54, National Park Service and Related Programs.
+

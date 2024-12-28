@@ -1,0 +1,7 @@
+
+### §470*l*. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272 ###
+
+§470*l*. Repealed. Pub. L. 113–287, §7, Dec. 19, 2014, 128 Stat. 3272
+
+Section, Pub. L. 89–665, title II, §204, Oct. 15, 1966, 80 Stat. 918; Pub. L. 91–243, §1(f), May 9, 1970, 84 Stat. 204; Pub. L. 94–422, title II, §201(6), Sept. 28, 1976, 90 Stat. 1321; Pub. L. 96–515, title III, §301(h), Dec. 12, 1980, 94 Stat. 2999, related to compensation of members of Council. See section 304104 of Title 54, National Park Service and Related Programs.
+
